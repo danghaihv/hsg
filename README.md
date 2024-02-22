@@ -1,2 +1,2 @@
 # hsg
-HSG
+This is an project about education.
