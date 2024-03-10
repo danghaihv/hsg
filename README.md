@@ -9,4 +9,5 @@ Lưu trữ tài liệu ôn thi HSG.
 6. [Đề 28.1](https://app.box.com/s/5na12zkc4kry1aag6qx7uw6d2914sagf)
 7. [Đề 29.1](https://app.box.com/s/ue2lv9dxf9qacd4svyi0wi6luvtqx1d0)
 8. [Đề 31.1](https://app.box.com/s/28qs963lkdw5fqdtoddfwz65mlq31zl2)
-9. 
+9. [Đề 19.2](https://app.box.com/s/twfr782i30nm97v3tvhfgwqgb3yfqbdy)
+10. 
