@@ -18,3 +18,6 @@ Lưu trữ tài liệu ôn thi HSG.
 15. [Đề 26.2](https://app.box.com/s/3d31j13pkzslttjbhx78h0cwlje93qyy)
 16. [Đề 27.2-1](https://app.box.com/s/eeslmcwfpqqklfn5uu3ej3o9ua0sr4iy)
 17. [Đề 27.2-2](https://app.box.com/s/z0937omqkkig6n4gi74mey4j6xjg2jl9)
+18. [Đề 28.2-1](https://app.box.com/s/f13pc4kj3yqs4g1hk7n8bhfmuey3zp09)
+19. [Đề 28.2-2](https://app.box.com/s/w4yk1aacqgv959r5lkdnyv2e7mku32d6)
+20. 
